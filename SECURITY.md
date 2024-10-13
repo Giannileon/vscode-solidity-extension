@@ -1,0 +1,1 @@
+fuck you git remove yourself from my code i never gave you permison nor did i ever give permison to mit to steal from me.  I want my account removed 100% removed from github. I expect 100% privacy you dont have any permison at all to use ny work Fuc you 
